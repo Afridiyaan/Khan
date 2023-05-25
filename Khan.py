@@ -1,0 +1,1 @@
+Exampl jajak hsha
